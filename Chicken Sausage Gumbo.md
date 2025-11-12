@@ -34,7 +34,6 @@
 - Chopped green onions or parsley (optional garnish)
 
 
----
 
 ## INSTRUCTIONS
 
